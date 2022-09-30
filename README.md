@@ -22,3 +22,53 @@
 <h2 dir="ltr" style="line-height:1.38;margin-top:8pt;margin-bottom:8pt;"><span style="font-size:17pt;font-family:Verdana;color:#000000;background-color:transparent;font-weight:700;font-style:normal;font-variant:normal;text-decoration:none;vertical-align:baseline;white-space:pre;white-space:pre-wrap;">Conclusion</span></h2>
 <p dir="ltr" style="line-height:1.38;margin-top:12pt;margin-bottom:8pt;"><span style="font-size:8.5pt;font-family:Verdana;color:#000000;background-color:transparent;font-weight:400;font-style:normal;font-variant:normal;text-decoration:none;vertical-align:baseline;white-space:pre;white-space:pre-wrap;">A&nbsp;</span><a href="https://solutiondots.com" style="text-decoration:none;"><span style="font-size:8.5pt;font-family:Verdana;color:#1155cc;background-color:transparent;font-weight:700;font-style:normal;font-variant:normal;text-decoration:underline;-webkit-text-decoration-skip:none;text-decoration-skip-ink:none;vertical-align:baseline;white-space:pre;white-space:pre-wrap;">POS</span></a><span style="font-size:8.5pt;font-family:Verdana;color:#000000;background-color:transparent;font-weight:400;font-style:normal;font-variant:normal;text-decoration:none;vertical-align:baseline;white-space:pre;white-space:pre-wrap;">&nbsp;job is a position that involves working with the cash register. This type of position usually requires some level of customer service, as well as the ability to interact with customers. A POS job can be a great way to start your career, or it can provide you with an opportunity to use your skills in a new and exciting way.&nbsp;</span></p>
 <p dir="ltr" style="line-height:1.38;margin-top:12pt;margin-bottom:8pt;"><span style="font-size:8.5pt;font-family:Verdana;color:#000000;background-color:transparent;font-weight:400;font-style:normal;font-variant:normal;text-decoration:none;vertical-align:baseline;white-space:pre;white-space:pre-wrap;">If you are interested in finding out more about POS jobs, or if you are already employed in a POS position and would like to share your experience with our readers, please leave a comment below!</span></p>
+<p dir="ltr" style="line-height:1.38;margin-top:12pt;margin-bottom:8pt;"><br></p>
+<p dir="ltr" style="line-height:1.38;margin-top:12pt;margin-bottom:8pt;"><span style="font-size:8.5pt;font-family:Verdana;color:#000000;background-color:transparent;font-weight:400;font-style:normal;font-variant:normal;text-decoration:none;vertical-align:baseline;white-space:pre;white-space:pre-wrap;"><strong>Related Links:</strong></span></p><strong>
+    <style type="text/css">
+        <!--td {border: 1px solid #cccccc;}br {mso-data-placement:same-cell;}
+        -->
+    </style>
+    <style type="text/css">
+        <!--td {border: 1px solid #cccccc;}br {mso-data-placement:same-cell;}
+        -->
+    </style>
+</strong>
+<table border="1" cellpadding="0" cellspacing="0" dir="ltr" style="table-layout:fixed;font-size:10pt;font-family:Arial;border-collapse:collapse;border:none;" xmlns="http://www.w3.org/1999/xhtml">
+    <tbody>
+        <tr style="height:21px;">
+            <td data-sheets-hyperlink="https://www.snipesocial.co.uk/blogs/134236/The-Best-Pos-System-Software-Saudi-Arabia" data-sheets-value='{"1":2,"2":"https://www.snipesocial.co.uk/blogs/134236/The-Best-Pos-System-Software-Saudi-Arabia"}' style="border-right:1px solid transparent;overflow:visible;padding:2px 0px 2px 0px;vertical-align:bottom;text-decoration:underline;color:#1155cc;">
+                <div style="white-space:nowrap;overflow:hidden;position:relative;width:600px;left:3px;">
+                    <div style="float:left;"><a class="in-cell-link" href="https://www.snipesocial.co.uk/blogs/134236/The-Best-Pos-System-Software-Saudi-Arabia" target="_blank">https://www.snipesocial.co.uk/blogs/134236/The-Best-Pos-System-Software-Saudi-Arabia</a></div>
+                </div>
+            </td>
+        </tr>
+        <tr style="height:21px;">
+            <td data-sheets-hyperlink="https://www.vingle.net/posts/4802854" data-sheets-value='{"1":2,"2":"https://www.vingle.net/posts/4802854"}' style="border-right:1px solid transparent;overflow:visible;padding:2px 0px 2px 0px;vertical-align:bottom;text-decoration:underline;color:#1155cc;">
+                <div style="white-space:nowrap;overflow:hidden;position:relative;width:297px;left:3px;">
+                    <div style="float:left;"><a class="in-cell-link" href="https://www.vingle.net/posts/4802854" target="_blank">https://www.vingle.net/posts/4802854</a></div>
+                </div>
+            </td>
+        </tr>
+        <tr style="height:21px;">
+            <td data-sheets-hyperlink="https://shortkro.com/pos-ksa-a-new-business-model-for-post-soviet-states/" data-sheets-value='{"1":2,"2":"https://shortkro.com/pos-ksa-a-new-business-model-for-post-soviet-states/"}' style="border-right:1px solid transparent;overflow:visible;padding:2px 0px 2px 0px;vertical-align:bottom;text-decoration:underline;color:#1155cc;">
+                <div style="white-space:nowrap;overflow:hidden;position:relative;width:499px;left:3px;">
+                    <div style="float:left;"><a class="in-cell-link" href="https://shortkro.com/pos-ksa-a-new-business-model-for-post-soviet-states/" target="_blank">https://shortkro.com/pos-ksa-a-new-business-model-for-post-soviet-states/</a></div>
+                </div>
+            </td>
+        </tr>
+        <tr style="height:21px;">
+            <td data-sheets-hyperlink="https://www.cleansway.com/blog/the-best-pos-system-can-make-your-business-profitable" data-sheets-value='{"1":2,"2":"https://www.cleansway.com/blog/the-best-pos-system-can-make-your-business-profitable"}' style="border-right:1px solid transparent;overflow:visible;padding:2px 0px 2px 0px;vertical-align:bottom;text-decoration:underline;color:#1155cc;">
+                <div style="white-space:nowrap;overflow:hidden;position:relative;width:600px;left:3px;">
+                    <div style="float:left;"><a class="in-cell-link" href="https://www.cleansway.com/blog/the-best-pos-system-can-make-your-business-profitable" target="_blank">https://www.cleansway.com/blog/the-best-pos-system-can-make-your-business-profitable</a></div>
+                </div>
+            </td>
+        </tr>
+        <tr style="height:21px;">
+            <td data-sheets-hyperlink="https://solutiondotss.wordpress.com/2022/09/30/is-there-pos-in-saudi-arabia/" data-sheets-value='{"1":2,"2":"https://solutiondotss.wordpress.com/2022/09/30/is-there-pos-in-saudi-arabia/"}' style="border-right:1px solid transparent;overflow:visible;padding:2px 0px 2px 0px;vertical-align:bottom;text-decoration:underline;color:#1155cc;">
+                <div style="white-space:nowrap;overflow:hidden;position:relative;width:499px;left:3px;">
+                    <div style="float:left;"><a class="in-cell-link" href="https://solutiondotss.wordpress.com/2022/09/30/is-there-pos-in-saudi-arabia/" target="_blank">https://solutiondotss.wordpress.com/2022/09/30/is-there-pos-in-saudi-arabia/</a></div>
+                </div>
+            </td>
+        </tr>
+    </tbody>
+</table>
